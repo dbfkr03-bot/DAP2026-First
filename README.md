@@ -10,3 +10,8 @@
 - 공간디자인
 - 무대디자인
   
+> the best way to predict the future is to invent it.
+>
+> --Alen C.Kay
+
+
